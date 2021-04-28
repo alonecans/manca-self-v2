@@ -1,1 +1,0 @@
-# manca-self-v2
